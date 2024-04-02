@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on data analysis
 - 📫 How to reach me +1(443)5008982
 - 😄 Pronouns: Yixin
-- ⚡ Fun fact: Dog lover and Elvis Fan
+- ⚡ Fun fact: Dog lover and Elvis Presley Big Fan
 
 <!---
 YoElvisX/YoElvisX is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
